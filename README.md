@@ -1,9 +1,9 @@
 # oam_tokyo20170531komae
 
 ## 水防訓練当日 訓練後の映像撮影
-### 未編集
-* その1:  https://youtu.be/JGXxt9Mpbho
-* その2:  (準備中)
+### 未編集（on YouTube）
+* その1:  https://youtu.be/JGXxt9Mpbho
+* その2:  https://youtu.be/Bh7geFewmW0
 * その3:  (準備中)
 
 
@@ -15,7 +15,7 @@
 
 
 ## 水防訓練事前空撮での映像撮影
-### 未編集
+### 未編集（on YouTube）
 * その1:  (準備中)
 * その2:  (準備中)
 * その3:  (準備中)
