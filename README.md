@@ -6,6 +6,11 @@
 * その2:  https://youtu.be/Bh7geFewmW0
 * その3:  https://youtu.be/w6iXFlOfsfg
 
+### 未編集（on YouTube）
+* その1:  https://youtu.be/IYEiM1KxiW8 
+* その2:  https://youtu.be/IYEiM1KxiW8
+
+---
 
 ## 狛江市水防訓練用 事前空撮
 
@@ -16,6 +21,6 @@
 
 ## 水防訓練事前空撮での映像撮影
 ### 未編集（on YouTube）
-* その1:  (準備中)
-* その2:  (準備中)
-* その3:  (準備中)
+* その1:  https://youtu.be/OwoRDvGIg7Q
+* その2:  https://youtu.be/3a_vrcnSmFk
+* その3:  https://youtu.be/6b91Ndh_JWs
