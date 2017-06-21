@@ -13,7 +13,7 @@ DL: https://drive.google.com/open?id=0B5y_c77ZDI0BcXdXTjg4bjI5bWM
 ## 水防訓練当日 訓練中の映像撮影
 ### 未編集（on YouTube）
 * その1:  https://youtu.be/OwoRDvGIg7Q  
-（DL準備中）
+DL: https://drive.google.com/open?id=0B4lVWJTuvOR1Mm0tR0IyT2lqZ3M
 * その2:  https://youtu.be/IYEiM1KxiW8  
 DL: https://drive.google.com/open?id=0B5y_c77ZDI0BbC0tMmhIQ3lZdms
 
